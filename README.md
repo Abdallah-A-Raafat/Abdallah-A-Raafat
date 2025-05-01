@@ -1,6 +1,7 @@
 # Hi there, I'm Abdallah Ahmed! 👋
 
-![Banner Image](your_banner_image_url_here)
+![Banner Image](![WhatsApp Image 2024-11-14 at 19 39 01_6151511b](https://github.com/user-attachments/assets/032b9d24-5599-4320-8245-f74df982c148)
+)
 
 ## About Me 🚀
 
